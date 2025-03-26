@@ -7,10 +7,10 @@
 - Build projects that make a real difference in people’s lives  
 
 📚 Currently learning: Google Advanced Data Analytics, Python, and machine learning  
-🤖 Dream project: An AI app that helps people practice communication (especially for those who feel isolated, like hikikomori in Japan)  
+🤖 Dream project: An AI app that helps people practice communication (especially for those who feel isolated)  
 🤝 Open to collaborating on creative, educational, or socially impactful projects  
 💬 Ask me about: AI tools, Telegram bots, or study tips  
-📫 How to reach me: [amirlan.seitkadyrov@gmail.com] or [@amirlan228 on Telegram]
+📫 How to reach me: [amirlan.seitkadyrov@gmail.com] or [@amirlan228 on Telegram]                               
 🌸 Fun fact: I’m a huge fan of sushi 🍣 and Japanese culture 🇯🇵  
 
 Thanks for visiting my profile! Let's connect and create something cool! 😊
